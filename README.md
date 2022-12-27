@@ -1,1 +1,1 @@
-PROJECT PREVIEW: https://nikolamat99.github.io/WWW-RESPONSYWNA/
+PROJECT PREVIEW: https://nikolamat99.github.io/WWW-RESPONSIVE/
